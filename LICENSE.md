@@ -1,4 +1,4 @@
-# 
+# vip Little Snitch for macOS Addon | password-sharing + safe-browsing offers the most advanced Little Snitch for macOS addon, with password-sharing and safe-browsing. Ideal for
 
 
 
